@@ -12,4 +12,5 @@
 <br> **- Likes to read manga.**
 
 
+![tenor](https://github.com/Chichi213/Daiz_CPE-313/assets/157892135/16d1e7ea-0f1e-4111-98c3-59923750d84e)
 
